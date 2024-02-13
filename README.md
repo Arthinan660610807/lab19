@@ -1,2 +1,2 @@
-# NAME:
-# STUDENT ID:
+# NAME:นายอาทินันท์ แจ้งสว่าง
+# STUDENT ID:660610807
